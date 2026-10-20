@@ -15,4 +15,4 @@ Orrin zna smoczy, podobnie jak Luma i Pip, ale to on tłumaczy rodzinne listy **
 - **Nixa** — zleceniodawczyni tłumaczeń i jedyna osoba w akademii, która słucha jego wykładów o smoczej gramatyce do końca. Pierwsze tłumaczenie dostała. Drugiego wciąż nie.
 - **Luma** — kłócą się o kopię schematu bariery, czy rację ma papier, czy rura. Luma dopisała markerem „schemat kłamie”. Orrin w tajemnicy zgadza się z Lumą, ale nie może tego przyznać na piśmie. Smoczych listów Nixy Luma nie rusza: list, jak mówi, nie jest rurą.
 
-**Zaczepka na sesję:** Orrin wyniósł z biblioteki kopię schematu bariery, czego pani Vellum surowo zabrania. Jeśli ktoś zapyta — on tylko „konsultuje źródło w terenie”. W tej samej kieszeni leży niedokończone drugie tłumaczenie listu Nixy. Brakuje w nim zdania o psim zębie. Oboje wiedzą, jak brzmi.
+**Zaczepka na sesję:** Orrin wyniósł z biblioteki kopię schematu bariery, czego pani Vellum surowo zabrania. Jeśli ktoś zapyta — on tylko „konsultuje źródło w terenie”. W tej samej kieszeni leży niedokończone drugie tłumaczenie listu Nixy. Brakuje w nim zdania o psim zębie. Oboje wiedzą, jak brzmi. Orrin obiecał je dopisać, jeśli dyżur będzie nudny.
